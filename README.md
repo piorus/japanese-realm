@@ -1,1 +1,1 @@
-# Japanese realm
+# 日本語キングダム

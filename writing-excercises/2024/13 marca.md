@@ -1,10 +1,16 @@
 to jest uczeń
 
+これわがくせいです
+
 
 mira-san jest pracownikiem firmy
 
+ミラサンかいしゃいんです
 
-oto moja wizytówka
+
+ moja wizytówka
+
+
 
 
 ile masz lat?
