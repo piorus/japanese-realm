@@ -32,6 +32,7 @@ IMC de hatarakimasu
 sore kara nihongo o benkyoshimasu
 
 2.
+
 raishyuu no doyoubi nani o shimasuka?
 koube de hirohbeohan o tabemasu
 sore kara eiga o mimasu
